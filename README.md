@@ -1,1 +1,1 @@
-This repo belongs to World of Dogs Company
+This profile belongs to World of Dogs Company
